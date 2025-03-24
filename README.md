@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @rizberry
+- 👀 I’m interested in creating FREE AI for everyone :)
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: discord - glacierfox
+- Owner of seduxai.com
